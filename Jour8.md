@@ -1,6 +1,6 @@
 # Objectifs journaliers
 
-Christopher
+Christophere
 
 ## Jour 8 (Lundi 21 Octobre 2024) :
 
